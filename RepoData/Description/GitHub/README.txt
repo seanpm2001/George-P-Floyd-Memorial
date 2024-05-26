@@ -1,1 +1,1 @@
- The new approach to Git repo templates, an ultimate template culminated in less than 2 weeks that combines all template categories into one. A very powerful Git template. 
+☮️✊🏿️🪦️ A digital memory to George Floyd, as he died the same day my account was created. RIP George P. Floyd (1973, October 14th — 2020, May 25th)
